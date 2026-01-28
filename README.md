@@ -1,4 +1,4 @@
-# Aiobahn +81、Nanahira、Pmarusama – 天天天国地獄国
+# Aiobahn +81, Nanahira 및 Pmarusama – 天天天国地獄国
 
 > **歌詞登録ステータス：同期歌詞あり**
 
